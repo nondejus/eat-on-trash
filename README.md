@@ -1,2 +1,0 @@
-# eat-on-trash
-doctor robin in aktion
